@@ -1,0 +1,1 @@
+Water (Sui) affinity

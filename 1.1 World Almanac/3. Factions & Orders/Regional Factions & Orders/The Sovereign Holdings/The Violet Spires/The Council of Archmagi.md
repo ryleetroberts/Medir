@@ -1,0 +1,3 @@
+- One member for each of [[zzz_GitRepo/1.1 World Almanac/1. World & Geography/3. The Sovereign Holdings/The Violet Spires/The Violet Spires]]
+	- [[1. World Almanac/5.  Notable Figures & Objects/1. Notable Figures/3. Factions & Orders/High Forum Councillors/Raelis Kyrias]] - The Foundational Spire
+	- 

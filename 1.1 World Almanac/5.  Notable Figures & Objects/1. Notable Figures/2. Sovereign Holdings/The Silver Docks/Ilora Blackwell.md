@@ -1,0 +1,1 @@
+**Merchant-Lady Ilora Blackwell**: A rising power among the younger merchants, known for pioneering trade routes to previously unexplored regions of Nothir

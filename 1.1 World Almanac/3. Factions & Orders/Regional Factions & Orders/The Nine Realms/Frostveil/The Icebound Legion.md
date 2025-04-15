@@ -1,0 +1,1 @@
+Frostveil’s disciplined standing force, trained to endure extreme cold, fight in harsh terrain, and defend against raids and sieges. Known for their unyielding resilience and strategic fortifications.

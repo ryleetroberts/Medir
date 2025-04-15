@@ -1,0 +1,1 @@
+ **Grand Artificer Ferin Nackle**: A gnomish genius who supervises the Spires' most ambitious magical constructions and integration of arcane technology, famous for creating self-sustaining enchantment matrices

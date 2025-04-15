@@ -1,0 +1,1 @@
+**Merchant-Lord Tallen Corrinwake**: The city's premier luxury goods merchant, who controls much of the trade in exotic Solrest spices, obsidian, and rare minerals, maintaining exclusive contracts with several prominent desert trading houses

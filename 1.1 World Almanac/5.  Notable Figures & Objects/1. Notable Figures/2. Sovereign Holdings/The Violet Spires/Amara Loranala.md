@@ -1,0 +1,1 @@
+**Magister Amara Loranala**: An elven enchantress who oversees the Threshold Spire and serves as the Violet Spires' primary diplomat with outside powers, known for her photographic memory and collection of rare magical items

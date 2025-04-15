@@ -1,0 +1,1 @@
+The enigmatic leader of the Lynx clan, rarely seen in public but whose intelligence network extends throughout the archipelago and even into Medir's cities

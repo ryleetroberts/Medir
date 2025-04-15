@@ -1,0 +1,1 @@
+A secretive network of Lynx clan operatives who serve as the Jade Court's intelligence service, gathering information throughout the eastern realms. Members undergo rigorous training in stealth, disguise, and memory techniques, enabling them to observe and recall information with supernatural precision while leaving no trace of their presence.

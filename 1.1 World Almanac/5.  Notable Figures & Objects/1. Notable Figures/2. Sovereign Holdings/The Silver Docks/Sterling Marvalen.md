@@ -1,0 +1,1 @@
+**Merchant-Lord Sterling Marvalen**: Current head of the Merchant-Lord Council, whose family has dominated Orir spice trade for six generations.

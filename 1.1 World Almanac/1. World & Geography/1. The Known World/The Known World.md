@@ -1,0 +1,13 @@
+# **Continents of the Known World**
+
+## **Medir**
+
+Medir is the primary continent and the heart of civilization, politics, and culture. It is home to the largest and most established kingdoms, including Brighthold and its surrounding realms. Medir is diverse, with lands ranging from fertile valleys and great river basins to towering mountains and expansive forests. It has been the center of historical conflicts, trade routes, and the rise and fall of empires. Most major world events, including wars, alliances, and religious movements, originate from Medir. To its inhabitants, Medir is simply "the world," with other continents seen as distant and less significant in their day-to-day lives.
+
+## **Orir**
+
+To the east of Medir lies Orir, a vast and culturally rich continent. Its western reaches are the most frequently traded with, consisting of arid lands, sprawling cities, and powerful merchant states that serve as the primary link between Medir and Orir. This region is known for its bustling trade hubs, religious scholarship, and highly skilled artisans. The northern and central regions of Orir are dominated by boreal forests, windswept plains, and expansive steppe lands, home to nomadic warrior societies and ancient strongholds. The distant east of Orir is the most mysterious, shrouded in myths of grand, isolated empires, near-impenetrable mountain ranges, and sprawling river valleys hidden behind mist-laden jungles. Few Mediran scholars have traveled this far, and much of what is believed about the eastern reaches of Orir comes from fragmented accounts and rumors carried by traders.
+
+## **Nothir**
+
+Far to the south, Nothir is a land of mystery, danger, and largely unexplored wilderness. Often depicted in Mediran maps as a forbidding and untamed frontier, Nothir is covered in vast mountain ranges and sprawling jungles, where ancient ruins hide beneath the canopy. Scholars speculate that it was once home to great civilizations that have long since vanished, leaving behind only enigmatic structures, indecipherable writings, and forgotten relics. However, Nothir is also infamous for its deadly plagues, venomous creatures, and monstrous beasts that have thwarted nearly every attempt at thorough exploration. Expeditions that return often bring back exotic plants, rare gemstones, and accounts of towering ziggurats lost to time, but also tales of vanished companions and hostile, unseen forces. To most in Medir, Nothir remains an eerie and near-mythical land, referenced more in cautionary tales than in scholarly discourse.

@@ -1,0 +1,1 @@
+Earth (Chi) affinity

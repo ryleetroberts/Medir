@@ -1,0 +1,1 @@
+Guiding Star of Sanctum Ardent

@@ -1,0 +1,1 @@
+**Keeper Valerian Thorne**: The enigmatic human custodian of the Arcane Vaults, responsible for containing dangerous artifacts and monitoring experimental containment chambers

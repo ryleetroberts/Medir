@@ -1,0 +1,1 @@
+The Wind Lorekeeper of the Cheetah clan, custodian of the provinces' oldest oral histories and the only non-clan member permitted to study the sacred texts at Mount Shirogane

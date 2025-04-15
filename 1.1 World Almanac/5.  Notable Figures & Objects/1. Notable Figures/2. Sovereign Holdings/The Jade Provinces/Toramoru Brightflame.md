@@ -1,0 +1,1 @@
+Current ruler of the Jade Provinces, a Tiger clan warlord who rose to power through tactical brilliance and unexpected diplomatic skill despite his fiery temperament
